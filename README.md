@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **revathi4517@gmail.com**
 
-- ⚡ Fun fact **I am artist.**
+- ⚡ Fun fact **I am an artist.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
